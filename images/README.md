@@ -1,0 +1,1 @@
+Fotografitë e galerisë DEON.
